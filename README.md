@@ -17,4 +17,3 @@
 [Personal Injury Law Firms]([url](https://lawtipsy.com/a-guide-to-personal-injury-law-firms-in-the-texas/))
 
 [Immigration Law Firm Software]([url](https://lawtipsy.com/immigration-law-firm-software-navigating-efficiency-and-empathy/)
-)
